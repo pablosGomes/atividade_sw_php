@@ -1,2 +1,2 @@
-professor antes de usar extraia o vendor.zip
+professor antes de usar extraia o vendor.rar
 obrigado
